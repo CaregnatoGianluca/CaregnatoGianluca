@@ -21,4 +21,5 @@
 
 ### 📫 Let’s Connect!
 - **LinkedIn:** [Click here](https://www.linkedin.com/in/gianluca-caregnato-3b8ab6196)
-- **Email:** [Click here](mailto:gianluca.caregnato@gmail.com)
+- **Email:** [Click here](mailto:gianluca.caregnato@gmail.com) : gianluca.caregnato@gmail.com
+  
