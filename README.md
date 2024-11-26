@@ -22,7 +22,3 @@
 ### 📫 Let’s Connect!
 - **LinkedIn:** [Click here](https://www.linkedin.com/in/gianluca-caregnato-3b8ab6196)
 - **Email:** [Click here](mailto:gianluca.caregnato@gmail.com)
-
----
-
-Questa bio è progettata per essere coinvolgente e professionale, riflettendo al meglio le tue competenze e i tuoi interessi. Se vuoi aggiungere o modificare qualcosa, fammi sapere!
